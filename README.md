@@ -1,1 +1,1 @@
-This is where I make mini projects
+This is where I make random Projects
